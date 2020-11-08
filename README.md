@@ -1,4 +1,4 @@
-# WELCOME TO MY CV
+# WELCOME
 ![ME](https://i.ibb.co/Yj9LBJr/my-pic.jpg)
 ## I am **Kanat Akmatov**
 
