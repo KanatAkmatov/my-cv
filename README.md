@@ -4,9 +4,7 @@
 
 * ### _You can find me in:_
 
-| ![Insta icon](https://i.ibb.co/1079MtZ/linkedin.png) | ![Gmail](https://i.ibb.co/BGmMG8P/gmail-icon.png) | ![Telegram](https://i.ibb.co/4VDrD47/telegram-icon.png) | ![Cellphone](https://i.ibb.co/Pcj7K30/cellphone-icon.png) |
-| ------------ | ------------- | ------------- | ------------- |
-| [Kanat Akmatov](https://www.linkedin.com/in/kanat-akmatov-1454b3177/) | [akmatov.96.kanat@gmail.com](https://www.google.com/intl/ru/gmail/about/#) | [@KanatAkmatov](https://t.me/KanatAkmatov) | +996558319126 |
+[LinkedIn](https://www.linkedin.com/in/kanat-akmatov-1454b3177/) / [@KanatAkmatov](https://t.me/KanatAkmatov) / +996558319126 / akmatov.96.kanat@gmail.com
 ---
 * ### About me:
 ---
